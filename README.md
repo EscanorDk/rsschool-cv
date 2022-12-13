@@ -1,1 +1,1 @@
-https://EscanorDk.github.io/rsschool-cv/cv
+https://EscanorDk.github.io/rsschool-cv/
